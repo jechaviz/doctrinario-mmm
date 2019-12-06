@@ -1,0 +1,30 @@
+# Colaboradores
+
+1. Cuando el crecimiento de la iglesia lo amerite, conviene que cada iglesia local tenga un cuerpo de colaboradores o diáconos, que estará compuesto por el pastor, que será su presidente, y de tres a cinco personas de ambos sexos, no habiendo más hermanas que hermanos, quienes serán establecidos según lo estipulado en la lección anterior, párrafo tres.
+2. Este cuerpo de Colaboradores trabajará por la buena marcha de todas las actividades de la iglesia y por su desarrollo espiritual, numérico y material 
+
+> **Hechos 6:3**
+> 3 Buscad, pues, hermanos, de entre vosotros a siete varones de buen testimonio, llenos del Espíritu Santo y de sabiduría, a quienes encarguemos de este trabajo.
+
+> **Tito 1:5**
+> 5 Por esta causa te dejé en Creta, para que corrigieses lo deficiente, y establecieses ancianos en cada ciudad, así como yo te mandé;
+
+> **Efesios 4:11-14**
+> 11 Y él mismo constituyó a unos, apóstoles; a otros, profetas; a otros, evangelistas; a otros, pastores y maestros,
+ 12 a fin de perfeccionar a los santos para la obra del ministerio, para la edificación del cuerpo de Cristo,
+ 13 hasta que todos lleguemos a la unidad de la fe y del conocimiento del Hijo de Dios, a un varón perfecto, a la medida de la estatura de la plenitud de Cristo;
+ 14 para que ya no seamos niños fluctuantes, llevados por doquiera de todo viento de doctrina, por estratagema de hombres que para engañar emplean con astucia las artimañas del error,
+
+- Visitarán los enfermos cuidarán del aseo y del ornato de la casa de Dios y realizarán toda labor que el pastor les encomendare tendiente al adelanto de la obra.
+3. El colaborador o diácono será reconocido por su firmeza, consagración y madurez espiritual 
+
+> **1 Timoteo 3:8-13**
+> 8 Los diáconos asimismo deben ser honestos, sin doblez, no dados a mucho vino, no codiciosos de ganancias deshonestas;
+ 9 que guarden el misterio de la fe con limpia conciencia.
+ 10 Y éstos también sean sometidos a prueba primero, y entonces ejerzan el diaconado, si son irreprensibles.
+ 11 Las mujeres asimismo sean honestas, no calumniadoras, sino sobrias, fieles en todo.
+ 12 Los diáconos sean maridos de una sola mujer, y que gobiernen bien sus hijos y sus casas.
+ 13 Porque los que ejerzan bien el diaconado, ganan para sí un grado honroso, y mucha confianza en la fe que es en Cristo Jesús.
+4. De entre los colaboradores, el pastor, conforme lo estipulado en la lección anterior, párrafo tres, nombrará un secretario y un tesorero, o un secretario-tesorero. El secretario redactará las actas de las reuniones de negocios de la iglesia y todo lo relacionado con ese departamento. El tesorero mantendrá una relación de las entradas y salidas financieras de la iglesia, para ser informado cuando fuere estipulado.
+5. El cuerpo de colaboradores, presidido siempre por el pastor, actuará como comité de disciplina.
+

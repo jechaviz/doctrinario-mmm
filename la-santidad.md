@@ -1,0 +1,120 @@
+# La Santidad
+
+## 1. Dios es santo. Él exige que sus hijos sean santos
+
+> **1 Pedro 1:
+15-16**
+> 15 sino, como aquel que os llamó es santo, sed también vosotros santos en toda vuestra manera de vivir;
+ 16 porque escrito está: Sed santos, porque yo soy santo.
+
+## 2. Santidad significa:
+
+- A. Limpio de toda inmundicia
+
+> **2 Crónicas 29:5,15**
+> 5 Y les dijo: !Oídme, levitas! Santificaos ahora, y santificad la casa de Jehová el Dios de vuestros padres, y sacad del santuario la inmundicia.
+ 15 Estos reunieron a sus hermanos, y se santificaron, y entraron, conforme al mandamiento del rey y las palabras de Jehová, para limpiar la casa de Jehová.
+
+> **2 Corintios 7:1**
+> 1 Así que, amados, puesto que tenemos tales promesas, limpiémonos de toda contaminación de carne y de espíritu, perfeccionando la santidad en el temor de Dios.
+
+- B. Separado del pecado
+
+> **1 Tesalonicenses 4:3**
+> 3 pues la voluntad de Dios es vuestra santificación; que os apartéis de fornicación;
+
+> **2 Corintios 6:17**
+> 17 Por lo cual, Salid de en medio de ellos, y apartaos, dice el Señor, Y no toquéis lo inmundo; Y yo os recibiré,
+
+- C. Dedicado a Dios
+
+> **Romanos 12:1-2**
+> 1 Así que, hermanos, os ruego por las misericordias de Dios, que presentéis vuestros cuerpos en sacrificio vivo, santo, agradable a Dios, que es vuestro culto racional.
+ 2 No os conforméis a este siglo, sino transformaos por medio de la renovación de vuestro entendimiento, para que comprobéis cuál sea la buena voluntad de Dios, agradable y perfecta.
+
+## 3. La Santidad se alcanza por:
+
+- A. Fe en la Palabra de Dios
+
+> **Juan 17:17**
+> 17 Santifícalos en tu verdad; tu palabra es verdad.
+
+> **Efesios 5:26**
+> 26 para santificarla, habiéndola purificado en el lavamiento del agua por la palabra,
+
+- B. Fe en la sangre de Cristo
+
+> **Hebreos 10:10,29**
+> 10 En esa voluntad somos santificados mediante la ofrenda del cuerpo de Jesucristo hecha una vez para siempre.
+ 29 ¿Cuánto mayor castigo pensáis que merecerá el que pisoteare al Hijo de Dios, y tuviere por inmunda la sangre del pacto en la cual fue santificado, e hiciere afrenta al Espíritu de gracia?
+
+- C. La obra del Espíritu Santo
+
+> **1 Pedro 1:2**
+> 2 elegidos según la presciencia de Dios Padre en santificación del Espíritu, para obedecer y ser rociados con la sangre de Jesucristo: Gracia y paz os sean multiplicadas.
+
+> **Gálatas 5:16**
+> 16 Digo, pues: Andad en el Espíritu, y no satisfagáis los deseos de la carne.
+
+> **Gálatas 5:22-25**
+> 22 Mas el fruto del Espíritu es amor, gozo, paz, paciencia, benignidad, bondad, fe,
+ 23 mansedumbre, templanza; contra tales cosas no hay ley.
+ 24 Pero los que son de Cristo han crucificado la carne con sus pasiones y deseos.
+ 25 Si vivimos por el Espíritu, andemos también por el Espíritu.
+
+## 4. El tiempo en que se verifica la santificación:
+
+- A. Inmediato en parte: en el tiempo de la conversión
+
+> **1 Corintios 6:9-11**
+> 9 ¿No sabéis que los injustos no heredarán el reino de Dios? No erréis; ni los fornicarios, ni los idólatras, ni los adúlteros, ni los afeminados, ni los que se echan con varones,
+ 10 ni los ladrones, ni los avaros, ni los borrachos, ni los maldicientes, ni los estafadores, heredarán el reino de Dios.
+ 11 Y esto erais algunos; mas ya habéis sido lavados, ya habéis sido santificados, ya habéis sido justificados en el nombre del Señor Jesús, y por el Espíritu de nuestro Dios.
+
+- B. Progresiva: el creyente se esforzará en perfeccionar la santificación
+
+> **2 Corintios 7:1**
+> Así que, amados, puesto que tenemos tales promesas, limpiémonos de toda contaminación de carne y de espíritu, perfeccionando la santidad en el temor de Dios.
+
+## Aspectos de la santidad:
+
+La verdadera santidad tiene dos aspectos: el interno y el externo; esto es, el aspecto del corazón y el aspecto de la conducta. Uno tiene que ver con los motivos, el otro con las acciones. La santidad interna es un estado de pureza obrado por el Espíritu Santo. La santidad externa es una vida de justicia y devoción a los más altos ideales del Evangelio. La santidad interna siempre se manifestará externamente, manteniendo normas altas de conducta, diferentes a las del mundo. El creyente santificado será diferente tanto interior como exteriormente. Hay los que dicen que lo de afuera no importa, pero la Biblia enseña que sí importa
+
+> **Isaías 3:16-26**
+> 16 Asimismo dice Jehová: Por cuanto las hijas de Sion se ensoberbecen, y andan con cuello erguido y con ojos desvergonzados; cuando andan van danzando, y haciendo son con los pies;
+ 17 por tanto, el Señor raerá la cabeza de las hijas de Sion, y Jehová descubrirá sus vergüenzas.
+ 18 Aquel día quitará el Señor el atavío del calzado, las redecillas, las lunetas,
+ 19 los collares, los pendientes y los brazaletes,
+ 20 las cofias, los atavíos de las piernas, los partidores del pelo, los pomitos de olor y los zarcillos,
+ 21 los anillos, y los joyeles de las narices,
+ 22 las ropas de gala, los mantoncillos, los velos, las bolsas,
+ 23 los espejos, el lino fino, las gasas y los tocados.
+ 24 Y en lugar de los perfumes aromáticos vendrá hediondez; y cuerda en lugar de cinturón, y cabeza rapada en lugar de la compostura del cabello; en lugar de ropa de gala ceñimiento de cilicio, y quemadura en vez de hermosura.
+ 25 Tus varones caerán a espada, y tu fuerza en la guerra.
+ 26 Sus puertas se entristecerán y enlutarán, y ella, desamparada, se sentará en tierra.
+
+> **Ezequiel 23:40**
+> 40 Además, enviaron por hombres que viniesen de lejos, a los cuales había sido enviado mensajero, y he aquí vinieron; y por amor de ellos te lavaste, y pintaste tus ojos, y te ataviaste con adornos;
+
+> **1 Pedro 3:3-5**
+> 3 Vuestro atavío no sea el externo de peinados ostentosos, de adornos de oro o de vestidos lujosos,
+ 4 sino el interno, el del corazón, en el incorruptible ornato de un espíritu afable y apacible, que es de grande estima delante de Dios.
+ 5 Porque así también se ataviaban en otro tiempo aquellas santas mujeres que esperaban en Dios, estando sujetas a sus maridos;
+
+> **1 Timoteo 2:9**
+> 9 Asimismo que las mujeres se atavíen de ropa decorosa, con pudor y modestia; no con peinado ostentoso, ni oro, ni perlas, ni vestidos costosos,
+
+> **1 Corintios 11:15**
+> 15 Por el contrario, a la mujer dejarse crecer el cabello le es honroso; porque en lugar de velo le es dado el cabello.
+
+> **Deuteronomio 22:5**
+> 5 No vestirá la mujer traje de hombre, ni el hombre vestirá ropa de mujer; porque abominación es a Jehová tu Dios cualquiera que esto hace.
+
+## 6. Normas de santidad:
+
+En vista de todas estas amonestaciones bíblicas, la Iglesia debe esforzarse en mantener normas altas de santidad interna y externa. Por lo tanto, las mujeres cristianas deben abstenerse de usar vestidos extravagantes, cortos, sin mangas, descotados, transparentes, pantalones, aretes, collares, adornos exagerados, rasurarse las cejas, etc. Igualmente los hombres cristianos deben abstenerse de toda apariencia vanidosa y de toda moda masculina que sea ridícula y de prendas de vestir afeminadas 
+
+> **2 Corintios 6:17-18**
+> 17 Por lo cual, Salid de en medio de ellos, y apartaos, dice el Señor, Y no toquéis lo inmundo; Y yo os recibiré,
+ 18 Y seré para vosotros por Padre, Y vosotros me seréis hijos e hijas, dice el Señor Todopoderoso.
+

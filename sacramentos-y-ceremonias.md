@@ -1,0 +1,163 @@
+# Sacramentos y Ceremonias
+
+Los sacramentos son dos: El Bautismo en Agua y la Santa Cena. Las ceremonias son tres: La Presentación de Niños, la Solemnización del Matrimonio y la Sepultura de los Muertos.
+
+## 1. El Bautismo en Agua:
+
+- A. Este sacramento es símbolo de la muerte del hombre viejo y la resurrección del hombre nuevo para andar en novedad de vida
+
+> **Romanos 6:4-6**
+> 4 Porque somos sepultados juntamente con él para muerte por el bautismo, a fin de que como Cristo resucitó de los muertos por la gloria del Padre, así también nosotros andemos en vida nueva.
+ 5 Porque si fuimos plantados juntamente con él en la semejanza de su muerte, así también lo seremos en la de su resurrección;
+ 6 sabiendo esto, que nuestro viejo hombre fue crucificado juntamente con él, para que el cuerpo del pecado sea destruido, a fin de que no sirvamos más al pecado.
+
+> **Efesios 4:22-24**
+> 22 En cuanto a la pasada manera de vivir, despojaos del viejo hombre, que está viciado conforme a los deseos engañosos,23 y renovaos en el espíritu de vuestra mente,24 y vestíos del nuevo hombre, creado según Dios en la justicia y santidad de la verdad.
+
+> **Marcos 1:15**
+> 15 diciendo: El tiempo se ha cumplido, y el reino de Dios se ha acercado; arrepentíos, y creed en el evangelio.
+
+> **Hechos 2:38**
+> 38 Pedro les dijo: Arrepentíos, y bautícese cada uno de vosotros en el nombre de Jesucristo para perdón de los pecados; y recibiréis el don del Espíritu Santo.
+
+- B. Se requiere de parte del candidato un testimonio claro y sincero de su fe en Cristo para ser bautizado
+
+> **Hechos 8:26-38**
+> 26 Un ángel del Señor habló a Felipe, diciendo: Levántate y ve hacia el sur, por el camino que desciende de Jerusalén a Gaza, el cual es desierto.
+ 27 Entonces él se levantó y fue. Y sucedió que un etíope, eunuco, funcionario de Candace reina de los etíopes, el cual estaba sobre todos sus tesoros, y había venido a Jerusalén para adorar,
+ 28 volvía sentado en su carro, y leyendo al profeta Isaías.
+ 29 Y el Espíritu dijo a Felipe: Acércate y júntate a ese carro.
+ 30 Acudiendo Felipe, le oyó que leía al profeta Isaías, y dijo: Pero ¿entiendes lo que lees?
+ 31 El dijo: ¿Y cómo podré, si alguno no me enseñare? Y rogó a Felipe que subiese y se sentara con él.
+ 32 El pasaje de la Escritura que leía era este: Como oveja a la muerte fue llevado; Y como cordero mudo delante del que lo trasquila, Así no abrió su boca.
+ 33 En su humillación no se le hizo justicia; Mas su generación, ¿quién la contará? Porque fue quitada de la tierra su vida.
+ 34 Respondiendo el eunuco, dijo a Felipe: Te ruego que me digas: ¿de quién dice el profeta esto; de sí mismo, o de algún otro?
+ 35 Entonces Felipe, abriendo su boca, y comenzando desde esta escritura, le anunció el evangelio de Jesús.
+ 36 Y yendo por el camino, llegaron a cierta agua, y dijo el eunuco: Aquí hay agua; ¿qué impide que yo sea bautizado?
+ 37 Felipe dijo: Si crees de todo corazón, bien puedes. Y respondiendo, dijo: Creo que Jesucristo es el Hijo de Dios.
+ 38 Y mandó parar el carro; y descendieron ambos al agua, Felipe y el eunuco, y le bautizó.
+
+> **Colosenses 2:12**
+> 12 sepultados con él en el bautismo, en el cual fuisteis también resucitados con él, mediante la fe en el poder de Dios que le levantó de los muertos.
+
+- En el nombre del Padre, del Hijo y del Espíritu Santo, en obediencia al mandato expreso del Señor
+
+> **Mateo 28:19**
+> 19 Por tanto, id, y haced discípulos a todas las naciones, bautizándolos en el nombre del Padre, y del Hijo, y del Espíritu Santo;
+
+- D. El bautismo es una confesión:
+1. De pecados
+
+> **Mateo 3:6**
+> 6 y eran bautizados por él en el Jordán, confesando sus pecados.
+2. De nuestros propósitos
+
+> **Romanos 6:11**
+> 11 Así también vosotros consideraos muertos al pecado, pero vivos para Dios en Cristo Jesús, Señor nuestro.
+3. De fe en la Palabra
+
+> **Hechos 2:41**
+> 41 Así que, los que recibieron su palabra fueron bautizados; y se añadieron aquel día como tres mil personas.
+4. De unión con Cristo.
+
+> **Gálatas 3:27**
+> 27 porque todos los que habéis sido bautizados en Cristo, de Cristo estáis revestidos.
+5. De buena conciencia
+
+> **1 Pedro 3:21**
+> 21 El bautismo que corresponde a esto ahora nos salva (no quitando las inmundicias de la carne, sino como la aspiración de una buena conciencia hacia Dios) por la resurrección de Jesucristo,6. De lealtad a Cristo
+
+> **Mateo 28:20**
+> 20 enseñándoles que guarden todas las cosas que os he mandado; y he aquí yo estoy con vosotros todos los días, hasta el fin del mundo. Amén.
+
+- Nota: Hemos escrito una lección aparte para estudiar más detenidamente sobre el bautismo.
+
+## 2. La Cena del Señor
+
+- A. Este sacramento fue instituido por el Señor, y ordenó que se practicara hasta su venida 
+
+> **Mateo 26:
+26-30**
+> 26 Y mientras comían, tomó Jesús el pan, y bendijo, y lo partió, y dio a sus discípulos, y dijo: Tomad, comed; esto es mi cuerpo.
+ 27 Y tomando la copa, y habiendo dado gracias, les dio, diciendo: Bebed de ella todos;
+ 28 porque esto es mi sangre del nuevo pacto, que por muchos es derramada para remisión de los pecados.
+ 29 Y os digo que desde ahora no beberé más de este fruto de la vid, hasta aquel día en que lo beba nuevo con vosotros en el reino de mi Padre.
+
+> **1 Corintios 11:23-31**
+> 23 Porque yo recibí del Señor lo que también os he enseñado: Que el Señor Jesús, la noche que fue entregado, tomó pan;
+ 24 y habiendo dado gracias, lo partió, y dijo: Tomad, comed; esto es mi cuerpo que por vosotros es partido; haced esto en memoria de mí.
+ 25 Asimismo tomó también la copa, después de haber cenado, diciendo: Esta copa es el nuevo pacto en mi sangre; haced esto todas las veces que la bebiereis, en memoria de mí.
+ 26 Así, pues, todas las veces que comiereis este pan, y bebiereis esta copa, la muerte del Señor anunciáis hasta que él venga.
+
+- B. Los dos elementos de pany vino (jugo de uvas sin alcohol) simbolizan el cuerpo y la sangre de Cristo, y expresan la participación nuestra de la naturaleza divina del Señor. Este sacramento es un memorial de sus sufrimientos y una profecía de su pronta venida.
+
+- C. Su cuerpo quebrantado (el pan) hace provisión para la salud de nuestro cuerpo; su sangre derramada (el vino) hace provisión para la salvación de nuestra alma
+
+> **Isaías 53: 4-6**
+> 4 Ciertamente llevó él nuestras enfermedades, y sufrió nuestros dolores; y nosotros le tuvimos por azotado, por herido de Dios y abatido.
+ 5 Mas él herido fue por nuestras rebeliones, molido por nuestros pecados; el castigo de nuestra paz fue sobre él, y por su llaga fuimos nosotros curados.
+ 6 Todos nosotros nos descarriamos como ovejas, cada cual se apartó por su camino; mas Jehová cargó en él el pecado de todos nosotros.
+
+- D. Es el privilegio y deber de todo miembro participar de la Santa Cena. Quien no se sienta preparado para participar, tampoco lo estará para ir con el Señor. Debe pues, buscar el perdón, renovar su consagración y prometer fidelidad al Señor.
+
+- La Iglesia al principio celebraba su servicio principal cada primer día de la semana, el día del Señor, el domingo, y participaban también de la Santa Cena
+
+> **Hechos 20:7**
+> 7 El primer día de la semana, reunidos los discípulos para partir el pan, Pablo les enseñaba, habiendo de salir al día siguiente; y alargó el discurso hasta la medianoche.
+
+> **1 Corintios 16:2**
+> 2 Cada primer día de la semana cada uno de vosotros ponga aparte algo, según haya prosperado, guardándolo, para que cuando yo llegue no se recojan entonces ofrendas.
+
+- Eusebio, el padre de la Historia de la Iglesia (265-340, D.C.), escribió: esde el principio los cristianos se congregaban el primer día de la semana, llamado el día del Señor, con el propósito de adoración, leer la Escritura, predicar y celebrar la Santa Cena.
+
+## 3. La presentación de Niños:
+
+- A. En esta ceremonia los padres cristianos traen a sus niños de tierna edad a la Iglesia para ser presentados al Señor en acto de gratitud y consagración
+
+> **Marcos 10:13-16**
+> 13 Y le presentaban niños para que los tocase; y los discípulos reprendían a los que los presentaban.
+ 14 Viéndolo Jesús, se indignó, y les dijo: Dejad a los niños venir a mí, y no se lo impidáis; porque de los tales es el reino de Dios.
+ 15 De cierto os digo, que el que no reciba el reino de Dios como un niño, no entrará en él.
+ 16 Y tomándolos en los brazos, poniendo las manos sobre ellos, los bendecía.
+
+## 4. La solemnización del Matrimonio:
+
+- A. El matrimonio fue instituido por Dios 
+
+> **Génesis 2:18-24**
+> 18 Y dijo Jehová Dios: No es bueno que el hombre esté solo; le haré ayuda idónea para él.
+ 19 Jehová Dios formó, pues, de la tierra toda bestia del campo, y toda ave de los cielos, y las trajo a Adán para que viese cómo las había de llamar; y todo lo que Adán llamó a los animales vivientes, ese es su nombre.
+ 20 Y puso Adán nombre a toda bestia y ave de los cielos y a todo ganado del campo; mas para Adán no se halló ayuda idónea para él.
+ 21 Entonces Jehová Dios hizo caer sueño profundo sobre Adán, y mientras éste dormía, tomó una de sus costillas, y cerró la carne en su lugar.
+ 22 Y de la costilla que Jehová Dios tomó del hombre, hizo una mujer, y la trajo al hombre.
+ 23 Dijo entonces Adán: Esto es ahora hueso de mis huesos y carne de mi carne; ésta será llamada Varona, porque del varón[b] fue tomada.
+ 24 Por tanto, dejará el hombre a su padre y a su madre, y se unirá a su mujer, y serán una sola carne.
+
+- fue confirmado por Cristo
+
+> **Mateo 19:5**
+> 5 y dijo: Por esto el hombre dejará padre y madre, y se unirá a su mujer, y los dos serán una sola carne?
+
+> **Juan 2:2**
+> 2 Y fueron también invitados a las bodas Jesús y sus discípulos.
+
+- es honroso
+
+> **Hebreos 13:4**
+> 4 Honroso sea en todos el matrimonio, y el lecho sin mancilla; pero a los fornicarios y a los adúlteros los juzgará Dios
+
+> **Proverbios 18:22**
+> 22 El que halla esposa halla el bien, Y alcanza la benevolencia de Jehová.
+
+- B. La unión ilícita (concubinato, fornicación, adulterio) ha sido y es la causa de la funesta corrupción moral y social, por lo tanto, todo cristiano verdadero deberá apreciar y acatar el sagrado estado del matrimonio.
+
+## 5. La Sepultura de los Muertos:
+
+- A. Siempre que sea posible es conveniente celebrar un culto de consolación y esperanza en el hogar para beneficio de los deudos y de los inconversos para hablarles de la seguridad del creyente en Cristo. Después se acompañará al cementerio donde el pastor dirigirá en la ceremonia de la sepultura
+
+> **Hechos 5:6**
+> 6 Y levantándose los jóvenes, lo envolvieron, y sacándolo, lo sepultaron.
+
+> **Hechos 8:2**
+> 2 Y hombres piadosos llevaron a enterrar a Esteban, e hicieron gran llanto sobre él.
+

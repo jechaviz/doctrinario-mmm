@@ -1,0 +1,174 @@
+# La Tentación
+
+## 1. ¿Qué es la tentación?
+
+Tentación, es una condición o circunstancia exterior, o un sentimiento o pasión interior que nos induce a hacer lo malo. Nadie ha escapado a la experiencia de ser tentado a hacer el mal. El ser tentado no constituye pecado; lo es ceder a la tentación.
+
+## 2. Fuentes de tentación:
+
+- A. Satanás
+
+> **Génesis 3:1**
+> 1 Pero la serpiente era astuta, más que todos los animales del campo que Jehová Dios había hecho; la cual dijo a la mujer: ¿Conque Dios os ha dicho: No comáis de todo árbol del huerto?
+
+> **Apocalipsis 12:9**
+> 9 Y fue lanzado fuera el gran dragón, la serpiente antigua, que se llama diablo y Satanás, el cual engaña al mundo entero; fue arrojado a la tierra, y sus ángeles fueron arrojados con él.
+
+> **Mateo 4:3**
+> 3 Y vino a él el tentador, y le dijo: Si eres Hijo de Dios, di que estas piedras se conviertan en pan.
+
+- B. Maldad humana
+
+> **Mateo 22:18**
+> 18 Pero Jesús, conociendo la malicia de ellos, les dijo: ¿Por qué me tentáis, hipócritas?
+
+> **Marcos 12:15**
+> 15 Mas él, percibiendo la hipocresía de ellos, les dijo: ¿Por qué me tentáis? Traedme la moneda para que la vea.
+
+- C. Propia concupiscencia
+
+> **Santiago 1:13-15**
+> 13 Cuando alguno es tentado, no diga que es tentado de parte de Dios; porque Dios no puede ser tentado por el mal, ni él tienta a nadie;
+ 14 sino que cada uno es tentado, cuando de su propia concupiscencia es atraído y seducido.
+ 15 Entonces la concupiscencia, después que ha concebido, da a luz el pecado; y el pecado, siendo consumado, da a luz la muerte.Esta última fuente de tentación es tal vez la más generalizada, porque está dentro del individuo; es más sutil, muy eficaz y destructiva. Lea:
+
+> **Santiago 1:13-15**
+> 13 Cuando alguno es tentado, no diga que es tentado de parte de Dios; porque Dios no puede ser tentado por el mal, ni él tienta a nadie;
+ 14 sino que cada uno es tentado, cuando de su propia concupiscencia es atraído y seducido.
+ 15 Entonces la concupiscencia, después que ha concebido, da a luz el pecado; y el pecado, siendo consumado, da a luz la muerte.
+
+- y note los seis pasos tan sutiles y progresivos de la tentación:
+
+- ●tentado-propia concupiscencia.
+●atraído 
+
+- pensamientos e imaginaciones impuras.
+●seducido 
+
+- la voluntad es debilitada.
+●concupiscencia concibe 
+
+- se rinde.
+●da a luz 
+
+- el pecado, y el pecado consumado.
+●da a luz 
+
+- muerte.
+
+## 3. Conductos de tentación:
+
+- A. Deseos de la carne.
+
+- Eva: Y vio la mujer que el árbol era bueno para comer..
+Cristo Si eres Hijo de Dios, di que estas piedras se conviertan en pan...
+
+- B. Deseos de los ojosSerán abiertos vuestros ojos... Fueron abiertos los ojos de ambos..
+Si eres Hijo de Dios, échate abajo, que a sus ángeles mandará...
+
+> **1 Juan 2:16**
+> 16 Porque todo lo que hay en el mundo, los deseos de la carne, los deseos de los ojos, y la vanagloria de la vida, no proviene del Padre, sino del mundo.
+
+- C. Vanagloria de la vida.
+
+- Y seréis como Dios..
+Todo esto te daré...Estos fueron los conductos o canales de tentación que Satanás usó con Eva en el Edén y con Cristo en el desierto. Eva fracasó, pero Cristo venció; y nosotros en Cristo podemos vencer. Veamos:
+
+- La victoria de Cristo es nuestra.
+
+## ¿Por qué Dios permite la tentación?
+
+- A. Porque desarrolla el carácter y la fe
+
+> **1 Pedro 1:
+7-13**
+> 7 para que sometida a prueba vuestra fe, mucho más preciosa que el oro, el cual aunque perecedero se prueba con fuego, sea hallada en alabanza, gloria y honra cuando sea manifestado Jesucristo,
+ 8 a quien amáis sin haberle visto, en quien creyendo, aunque ahora no lo veáis, os alegráis con gozo inefable y glorioso;
+ 9 obteniendo el fin de vuestra fe, que es la salvación de vuestras almas.
+ 10 Los profetas que profetizaron de la gracia destinada a vosotros, inquirieron y diligentemente indagaron acerca de esta salvación,
+ 11 escudriñando qué persona y qué tiempo indicaba el Espíritu de Cristo que estaba en ellos, el cual anunciaba de antemano los sufrimientos de Cristo, y las glorias que vendrían tras ellos.
+ 12 A éstos se les reveló que no para sí mismos, sino para nosotros, administraban las cosas que ahora os son anunciadas por los que os han predicado el evangelio por el Espíritu Santo enviado del cielo; cosas en las cuales anhelan mirar los ángeles.
+
+> **1 Pedro 5:8-9**
+> 8 Sed sobrios, y velad; porque vuestro adversario el diablo, como león rugiente, anda alrededor buscando a quien devorar;
+ 9 al cual resistid firmes en la fe, sabiendo que los mismos padecimientos se van cumpliendo en vuestros hermanos en todo el mundo.
+
+- B. Porque mantiene humilde al cristiano
+
+> **2 Corintios 12:7**
+> 7 Y para que la grandeza de las revelaciones no me exaltase desmedidamente, me fue dado un aguijón en mi carne, un mensajero de Satanás que me abofetee, para que no me enaltezca sobremanera;
+
+- C. Porque al vencer queda demostrado el poder de Dios sobre Satanás
+
+> **1 Corintios 10:13**
+> 13 No os ha sobrevenido ninguna tentación que no sea humana; pero fiel es Dios, que no os dejará ser tentados más de lo que podéis resistir, sino que dará también juntamente con la tentación la salida, para que podáis soportar.
+
+- D. Porque al vencer el cristiano es recompensado y le proporciona gozo
+
+> **Apocalipsis 2:7,11,17**
+> 7 El que tiene oído, oiga lo que el Espíritu dice a las iglesias. Al que venciere, le daré a comer del árbol de la vida, el cual está en medio del paraíso de Dios.
+ 11 El que tiene oído, oiga lo que el Espíritu dice a las iglesias. El que venciere, no sufrirá daño de la segunda muerte.
+ 17 El que tiene oído, oiga lo que el Espíritu dice a las iglesias. Al que venciere, daré a comer del maná escondido, y le daré una piedrecita blanca, y en la piedrecita escrito un nombre nuevo, el cual ninguno conoce sino aquel que lo recibe.
+
+> **Job 42:5**
+> 5 De oídas te había oído; Mas ahora mis ojos te ven.
+
+- E. Porque nadie podrá entrar al cielo si no vence la tentación
+
+> **Santiago 1:12**
+> 12 Bienaventurado el varón que soporta la tentación; porque cuando haya resistido la prueba, recibirá la corona de vida, que Dios ha prometido a los que le aman.
+
+## ¿Cómo vencer la tentación?
+
+- A. Ese es el propósito de Dios, que venzamos
+
+> **1 Corintios 10:
+13**
+> 13 No os ha sobrevenido ninguna tentación que no sea humana; pero fiel es Dios, que no os dejará ser tentados más de lo que podéis resistir, sino que dará también juntamente con la tentación la salida, para que podáis soportar.
+
+- B. No debemos de buscar la tentación, sino evitarla
+
+> **1 Corintios 6:18**
+> 18 Huid de la fornicación. Cualquier otro pecado que el hombre cometa, está fuera del cuerpo; mas el que fornica, contra su propio cuerpo peca.
+
+> **1 Corintios 10:14**
+> 14 Por tanto, amados míos, huid de la idolatría.
+
+> **1 Timoteo 6:11**
+> 11 Mas tú, oh hombre de Dios, huye de estas cosas, y sigue la justicia, la piedad, la fe, el amor, la paciencia, la mansedumbre.
+
+- C. Debemos velar y orar
+
+> **Mateo 26:41**
+> 41 Velad y orad, para que no entréis en tentación; el espíritu a la verdad está dispuesto, pero la carne es débil.
+
+- D. Debemos leer, meditar, confesar y obedecer la Palabra de Dios
+
+> **Mateo 4:1-11**
+> 1 Entonces Jesús fue llevado por el Espíritu al desierto, para ser tentado por el diablo.
+ 2 Y después de haber ayunado cuarenta días y cuarenta noches, tuvo hambre.
+ 3 Y vino a él el tentador, y le dijo: Si eres Hijo de Dios, di que estas piedras se conviertan en pan.
+ 4 El respondió y dijo: Escrito está: No sólo de pan vivirá el hombre, sino de toda palabra que sale de la boca de Dios.
+ 5 Entonces el diablo le llevó a la santa ciudad, y le puso sobre el pináculo del templo,
+ 6 y le dijo: Si eres Hijo de Dios, échate abajo; porque escrito está: A sus ángeles mandará acerca de ti, y, En sus manos te sostendrán, Para que no tropieces con tu pie en piedra.
+ 7 Jesús le dijo: Escrito está también: No tentarás al Señor tu Dios.
+ 8 Otra vez le llevó el diablo a un monte muy alto, y le mostró todos los reinos del mundo y la gloria de ellos,
+ 9 y le dijo: Todo esto te daré, si postrado me adorares.
+ 10 Entonces Jesús le dijo: Vete, Satanás, porque escrito está: Al Señor tu Dios adorarás, y a él sólo servirás.
+ 11 El diablo entonces le dejó; y he aquí vinieron ángeles y le servían.
+
+> **Apocalipsis 12:11**
+> 11 Y ellos le han vencido por medio de la sangre del Cordero y de la palabra del testimonio de ellos, y menospreciaron sus vidas hasta la muerte.
+
+- E. Debemos asistir a la casa de Dios y buscar a Dios
+
+> **Hebreos 10:23-25**
+> 23 Mantengamos firme, sin fluctuar, la profesión de nuestra esperanza, porque fiel es el que prometió.
+ 24 Y considerémonos unos a otros para estimularnos al amor y a las buenas obras;
+ 25 no dejando de congregarnos, como algunos tienen por costumbre, sino exhortándonos; y tanto más, cuanto veis que aquel día se acerca.
+
+> **Hebreos 4:14-16**
+> 14 Por tanto, teniendo un gran sumo sacerdote que traspasó los cielos, Jesús el Hijo de Dios, retengamos nuestra profesión.
+ 15 Porque no tenemos un sumo sacerdote que no pueda compadecerse de nuestras debilidades, sino uno que fue tentado en todo según nuestra semejanza, pero sin pecado.
+ 16 Acerquémonos, pues, confiadamente al trono de la gracia, para alcanzar misericordia y hallar gracia para el oportuno socorro.
+

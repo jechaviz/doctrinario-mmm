@@ -1,0 +1,99 @@
+# La Iglesia Local
+
+1. Todos los verdaderos cristianos que se asocian entre sí en la formación de una iglesia local se esforzarán por mantener las normas y principios bíblicos de reunión, comunión, servicio, adoración, amor y gobierno.
+2. A la vez que cada iglesia local disfruta de cierto grado de autonomía en el manejo de sus asuntos, reconocerá siempre que como parte integrante de la Iglesia de Jesucristo, decidirá sus asuntos en armonía y conformidad con los postulados bíblicos del Nuevo Testamento, que repudia toda politiquería en las iglesias y en las convenciones en favor o en contra de candidatos a cargos locales, nacionales o de pastor.Se debe buscar con diligencia la dirección genuina del Espíritu Santo para poder decir como la iglesia primitiva: Ha parecido bien al Espíritu Santo y a nosotro. Para la naturaleza humana es muy difícil esperar y depender de la verdadera dirección y voluntad de Dios, pero ésta es la única senda sabia y segura.
+También se debe tener en cuenta los acuerdos tomados en sus convenciones generales o concilios.
+
+- Cada iglesia local dispondrá de sus fondos; administrará disciplina a sus miembros; cuando fuere necesario establecerá hermanos responsables como colaboradores, los cuales serán escogidos entre los candidatos propuestos por el pastor en común acuerdo con los colaboradores salientes; sea cual fuere su sistema de gobierno local recibirá a su pastor en la mayor armonía, responsabilidad y temor de Dios; en todo esto reconociendo a Jesucristo como la verdadera Cabeza de la Iglesia
+
+> **Efesios 5:23**
+> 23 porque el marido es cabeza de la mujer, así como Cristo es cabeza de la iglesia, la cual es su cuerpo, y él es su Salvador.
+
+- al Espíritu Santo como su verdadero Dirigente
+
+> **Juan 14:18,26**
+> 18 No os dejaré huérfanos; vendré a vosotros.
+ 26 Mas el Consolador, el Espíritu Santo, a quien el Padre enviará en mi nombre, él os enseñará todas las cosas, y os recordará todo lo que yo os he dicho.
+
+- y al pastor como al Ángel
+
+> **Apocalipsis 3:1**
+> Escribe al ángel de la iglesia en Sardis: El que tiene los siete espíritus de Dios, y las siete estrellas, dice esto: Yo conozco tus obras, que tienes nombre de que vives, y estás muerto.
+
+- quien tendrá que rendir cuentas al Señor
+
+> **Hebreos 13:17**
+> 17 Obedeced a vuestros pastores, y sujetaos a ellos; porque ellos velan por vuestras almas, como quienes han de dar cuenta; para que lo hagan con alegría, y no quejándose, porque esto no os es provechoso.
+4. Cada iglesia local podría enviar delegados a convenciones generales.
+5. Cada iglesia local sostendrá a su pastor por medio de los diezmos y las ofrendas.
+6. Se entiende que para que una iglesia local pueda disfrutar plenamente de sus derechos y prerrogativas locales y generales, debe estar cumpliendo con sus obligaciones en todo lo relacionado al sostenimiento de su propia obra y del obrero.
+7. Se comprende que el pastor y la iglesia tienen responsabilidades mutuas. Al mismo tiempo que el pastor realizará sus mejores esfuerzos para administrar a la iglesia el mensaje puro de la Palabra de Dios
+
+> **Hechos 20:27-28**
+> 27 porque no he rehuido anunciaros todo el consejo de Dios.
+ 28 Por tanto, mirad por vosotros, y por todo el rebaño en que el Espíritu Santo os ha puesto por obispos, para apacentar la iglesia del Señor, la cual él ganó por su propia sangre.
+
+- y de servirle en todas aquellas cosas concernientes a su ministerio cristiano; la iglesia, por su parte, está llamada a considerar al pastor como mensajero de Dios
+
+> **Malaquías 2:7**
+> 7 Porque los labios del sacerdote han de guardar la sabiduría, y de su boca el pueblo buscará la ley; porque mensajero es de Jehová de los ejércitos.
+
+> **Gálatas 4:15**
+> 15 ¿Dónde, pues, está esa satisfacción que experimentabais? Porque os doy testimonio de que si hubieseis podido, os hubierais sacado vuestros propios ojos para dármelos.
+
+- a acatar sus enseñanzas bíblicas
+
+> **1 Corintios 11:2**
+> 2 Os alabo, hermanos, porque en todo os acordáis de mí, y retenéis las instrucciones tal como os las entregué.
+
+> **1 Corintios 16:16**
+> 16 Os ruego que os sujetéis a personas como ellos, y a todos los que ayudan y trabajan.
+
+- ,a seguir su santo ejemplo
+
+> **Filipenses 3:17**
+> 17 Hermanos, sed imitadores de mí, y mirad a los que así se conducen según el ejemplo que tenéis en nosotros.
+
+> **2 Tesalonicenses 3:9**
+> 9 no porque no tuviésemos derecho, sino por daros nosotros mismos un ejemplo para que nos imitaseis.
+
+- a imitar su fe
+
+> **Hebreos 13:7**
+> 7 Acordaos de vuestros pastores, que os hablaron la palabra de Dios; considerad cuál haya sido el resultado de su conducta, e imitad su fe.
+
+- a respetarlo y a estimarlo
+
+> **1 Tesalonisenses 5:12**
+> 12 Os rogamos, hermanos, que reconozcáis a los que trabajan entre vosotros, y os presiden en el Señor, y os amonestan;
+
+> **Filipenses 2:29**
+> 29 Recibidle, pues, en el Señor, con todo gozo, y tened en estima a los que son como él;
+
+- a orar por él
+
+> **Colosenses 4:3**
+> 3 orando también al mismo tiempo por nosotros, para que el Señor nos abra puerta para la palabra, a fin de dar a conocer el misterio de Cristo, por el cual también estoy preso,
+
+> **2 Tesalonicenses 3:1**
+> 1 Por lo demás, hermanos, orad por nosotros, para que la palabra del Señor corra y sea glorificada, así como lo fue entre vosotros,
+
+- a sostenerlo
+
+> **Gálatas 6:6**
+> 6 El que es enseñado en la palabra, haga partícipe de toda cosa buena al que lo instruye.
+
+> **1 Corintios 9:11**
+> 11 Si nosotros sembramos entre vosotros lo espiritual, ¿es gran cosa si segáremos de vosotros lo material?
+
+> **1 Corintios 9:14**
+> 14 Así también ordenó el Señor a los que anuncian el evangelio, que vivan del evangelio.
+
+> **Lucas 10:7**
+> 7 Y posad en aquella misma casa, comiendo y bebiendo lo que os den; porque el obrero es digno de su salario. No os paséis de casa en casa.
+
+- , a obedecerlo
+
+> **Hebreos 11:17**
+> 17 Por la fe Abraham, cuando fue probado, ofreció a Isaac; y el que había recibido las promesas ofrecía su unigénito,
+

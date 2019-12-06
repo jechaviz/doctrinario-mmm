@@ -1,0 +1,23 @@
+# La Condenación Eterna
+
+- Después del Milenio se efectuará la resurrección de todos los muertos impíos para ser presentados delante del Gran Trono Blanco y ser juzgados conforme a sus malas obras, para ser lanzados al Lago de fuego y azufre donde serán atormentados por toda la eternidad 
+
+> **Apocalipsis 20:11-15**
+> 11 Y vi un gran trono blanco y al que estaba sentado en él, de delante del cual huyeron la tierra y el cielo, y ningún lugar se encontró para ellos.
+ 12 Y vi a los muertos, grandes y pequeños, de pie ante Dios; y los libros fueron abiertos, y otro libro fue abierto, el cual es el libro de la vida; y fueron juzgados los muertos por las cosas que estaban escritas en los libros, según sus obras.
+ 13 Y el mar entregó los muertos que había en él; y la muerte y el Hades entregaron los muertos que había en ellos; y fueron juzgados cada uno según sus obras.
+ 14 Y la muerte y el Hades fueron lanzados al lago de fuego. Esta es la muerte segunda.
+ 15 Y el que no se halló inscrito en el libro de la vida fue lanzado al lago de fuego.
+
+> **Mateo 25:31-41**
+> 31 Cuando el Hijo del Hombre venga en su gloria, y todos los santos ángeles con él, entonces se sentará en su trono de gloria,
+ 32 y serán reunidas delante de él todas las naciones; y apartará los unos de los otros, como aparta el pastor las ovejas de los cabritos.
+ 33 Y pondrá las ovejas a su derecha, y los cabritos a su izquierda.
+ 34 Entonces el Rey dirá a los de su derecha: Venid, benditos de mi Padre, heredad el reino preparado para vosotros desde la fundación del mundo.
+ 35 Porque tuve hambre, y me disteis de comer; tuve sed, y me disteis de beber; fui forastero, y me recogisteis;
+ 36 estuve desnudo, y me cubristeis; enfermo, y me visitasteis; en la cárcel, y vinisteis a mí.
+ 37 Entonces los justos le responderán diciendo: Señor, ¿cuándo te vimos hambriento, y te sustentamos, o sediento, y te dimos de beber?
+ 38 ¿Y cuándo te vimos forastero, y te recogimos, o desnudo, y te cubrimos?
+ 39 ¿O cuándo te vimos enfermo, o en la cárcel, y vinimos a ti?
+ 40 Y respondiendo el Rey, les dirá: De cierto os digo que en cuanto lo hicisteis a uno de estos mis hermanos más pequeños, a mí lo hicisteis.
+ 41 Entonces dirá también a los de la izquierda: Apartaos de mí, malditos, al fuego eterno preparado para el diablo y sus ángeles.
