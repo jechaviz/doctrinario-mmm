@@ -1,0 +1,45 @@
+# La Segunda venida
+
+- La segunda venida de Cristo al mundo es la esperanza bienaventurada del creyente
+
+> **1 Tesalonicenses 4:13-17**
+> 13 Tampoco queremos, hermanos, que ignoréis acerca de los que duermen, para que no os entristezcáis como los otros que no tienen esperanza.
+ 14 Porque si creemos que Jesús murió y resucitó, así también traerá Dios con Jesús a los que durmieron en él.
+ 15 Por lo cual os decimos esto en palabra del Señor: que nosotros que vivimos, que habremos quedado hasta la venida del Señor, no precederemos a los que durmieron.
+ 16 Porque el Señor mismo con voz de mando, con voz de arcángel, y con trompeta de Dios, descenderá del cielo; y los muertos en Cristo resucitarán primero.
+ 17 Luego nosotros los que vivimos, los que hayamos quedado, seremos arrebatados juntamente con ellos en las nubes para recibir al Señor en el aire, y así estaremos siempre con el Señor.
+
+## 1. El levantamiento de la Iglesia:
+
+- Primeramente se verificará el levantamiento de la Iglesia, que incluirá a los muertos en Cristo, quienes serán resucitados, y a los que viven en limpieza y en santidad, quienes serán transformados en un abrir y cerrar de ojos, para estar todos con el Señor para siempre 
+
+> **1 Tesalonicenses 4:16-18**
+> 16 Porque el Señor mismo con voz de mando, con voz de arcángel, y con trompeta de Dios, descenderá del cielo; y los muertos en Cristo resucitarán primero.
+ 17 Luego nosotros los que vivimos, los que hayamos quedado, seremos arrebatados juntamente con ellos en las nubes para recibir al Señor en el aire, y así estaremos siempre con el Señor.
+ 18 Por tanto, alentaos los unos a los otros con estas palabras.
+
+- Al ser levantada la Iglesia, se manifestará el Anticristo y dará comienzo la Gran Tribulación
+
+> **2 Tesalonicenses 2:3-10**
+> 3 Nadie os engañe en ninguna manera; porque no vendrá sin que antes venga la apostasía, y se manifieste el hombre de pecado, el hijo de perdición,
+ 4 el cual se opone y se levanta contra todo lo que se llama Dios o es objeto de culto; tanto que se sienta en el templo de Dios como Dios, haciéndose pasar por Dios.
+ 5 ¿No os acordáis que cuando yo estaba todavía con vosotros, os decía esto?
+ 6 Y ahora vosotros sabéis lo que lo detiene, a fin de que a su debido tiempo se manifieste.
+ 7 Porque ya está en acción el misterio de la iniquidad; sólo que hay quien al presente lo detiene, hasta que él a su vez sea quitado de en medio.
+ 8 Y entonces se manifestará aquel inicuo, a quien el Señor matará con el espíritu de su boca, y destruirá con el resplandor de su venida;
+ 9 inicuo cuyo advenimiento es por obra de Satanás, con gran poder y señales y prodigios mentirosos,
+ 10 y con todo engaño de iniquidad para los que se pierden, por cuanto no recibieron el amor de la verdad para ser salvos.
+
+## 2. La aparición:
+
+- A los siete años del levantamiento de la Iglesia (la semana número 70 de Daniel), tendrá lugar la aparición de Jesucristo en las nubes del cielo, quien vendrá con Sus santos millares, a darle el pago a los que no conocieron a Dios ni obedecieron al Evangelio, y quién salvará a Israel del poder del Anticristo en la guerra de Armagedón, y reinará por mil años (milenio) sobre la tierra
+
+> **2 Tesalonicenses 1:7-10**
+> 7 y a vosotros que sois atribulados, daros reposo con nosotros, cuando se manifieste el Señor Jesús desde el cielo con los ángeles de su poder,
+ 8 en llama de fuego, para dar retribución a los que no conocieron a Dios, ni obedecen al evangelio de nuestro Señor Jesucristo;
+ 9 los cuales sufrirán pena de eterna perdición, excluidos de la presencia del Señor y de la gloria de su poder,
+ 10 cuando venga en aquel día para ser glorificado en sus santos y ser admirado en todos los que creyeron (por cuanto nuestro testimonio ha sido creído entre vosotros).
+
+> **Apocalipsis 20:4**
+> 4 Y vi tronos, y se sentaron sobre ellos los que recibieron facultad de juzgar; y vi las almas de los decapitados por causa del testimonio de Jesús y por la palabra de Dios, los que no habían adorado a la bestia ni a su imagen, y que no recibieron la marca en sus frentes ni en sus manos; y vivieron y reinaron con Cristo mil años.
+

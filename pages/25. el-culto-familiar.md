@@ -1,0 +1,34 @@
+# El Culto Familiar
+
+La Familia es la más antigua institución en la raza humana. Fue creada por Dios en el huerto de Edén. Todas las demás instituciones que luego han surgido, como el Estado, la Iglesia, entre otras, siempre tienen su base en la Familia.Si la Familia marcha bien, todo marchará bien. Para que la Familia marche bien tiene que conservarse como Dios la fundó: en comunión con Él y obediencia a su Palabra
+
+> **Génesis 2:18**
+> 18 Y dijo Jehová Dios: No es bueno que el hombre esté solo; le haré ayuda idónea para él.
+
+> **Génesis 2:21-24**
+> 21 Entonces Jehová Dios hizo caer sueño profundo sobre Adán, y mientras éste dormía, tomó una de sus costillas, y cerró la carne en su lugar.
+ 22 Y de la costilla que Jehová Dios tomó del hombre, hizo una mujer, y la trajo al hombre.
+ 23 Dijo entonces Adán: Esto es ahora hueso de mis huesos y carne de mi carne; ésta será llamada Varona, porque del varón fue tomada.
+ 24 Por tanto, dejará el hombre a su padre y a su madre, y se unirá a su mujer, y serán una sola carne.
+
+> **Génesis 3:3**
+> 3 pero del fruto del árbol que está en medio del huerto dijo Dios: No comeréis de él, ni le tocaréis, para que no muráis.
+
+- Por lo mismo, Dios ordenó que su Palabra fuera enseñada a nuestros hijos en el hogar 
+
+> **Deuteronomio 6:6-9**
+> 6 Y estas palabras que yo te mando hoy, estarán sobre tu corazón;
+ 7 y las repetirás a tus hijos, y hablarás de ellas estando en tu casa, y andando por el camino, y al acostarte, y cuando te levantes.
+ 8 Y las atarás como una señal en tu mano, y estarán como frontales entre tus ojos;
+ 9 y las escribirás en los postes de tu casa, y en tus puertas.Esto nos lleva al Culto Familiar, que debe celebrarse diariamente, y el cual debe incluir el cántico de alabanzas a Dios, la lectura de la Palabra de Dios, la exhortación, el consejo y la oración. El Culto Familiar es especialmente para beneficio espiritual de los hijos y estos deben estar presentes. Las enseñanzas ateístas de escuelas y universidades no podrán destruir la fe de aquellos hijos que se han fortalecido en el Culto Familiar
+
+> **Proverbios 22:6**
+> 6 Instruye al niño en su camino, Y aun cuando fuere viejo no se apartará de él.
+
+> **2 Timoteo 3:14-15**
+> 14 Pero persiste tú en lo que has aprendido y te persuadiste, sabiendo de quién has aprendido;
+ 15 y que desde la niñez has sabido las Sagradas Escrituras, las cuales te pueden hacer sabio para la salvación por la fe que es en Cristo Jesús.
+
+- Convencido de la importancia del Culto Familiar, Josué dijo: Yo y mi casa serviremos a Jehová.
+¡La Familia que ora unida, vence unida!
+

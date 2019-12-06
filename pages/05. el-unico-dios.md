@@ -1,0 +1,60 @@
+# El único Dios
+
+- El único Dios verdadero se ha revelado a Sí mismo como reuniendo los principios de parentesco y unidad, esto es: Padre, Hijo y Espíritu Santo
+
+> **Deuteronomio 6:4**
+> 4 Oye, Israel: Jehová nuestro Dios, Jehová uno es.
+
+> **Isaías 43:10-11**
+> 10 Vosotros sois mis testigos, dice Jehová, y mi siervo que yo escogí, para que me conozcáis y creáis, y entendáis que yo mismo soy; antes de mí no fue formado dios, ni lo será después de mí.
+ 11 Yo, yo Jehová, y fuera de mí no hay quien salve.
+
+> **Mateo 28:19**
+> 19 Por tanto, id, y haced discípulos a todas las naciones, bautizándolos en el nombre del Padre, y del Hijo, y del Espíritu Santo;
+
+> **2 Corintios 13:14**
+> 14 La gracia del Señor Jesucristo, el amor de Dios, y la comunión del Espíritu Santo sean con todos vosotros. Amén.
+
+Los términos Trinidad y Personas refiriéndose a la Deidad, aún cuando no se encuentran en las Escrituras, están en completa armonía con las mismas. La unidad divina es una unidad compuesta. Por ejemplo, el agua es una, pero se le conoce en tres formas: líquido, sólido y vapor. El sol es uno, pero tiene tres clases de rayos principales: luz, calor y energía. La hoja de trébol es una, pero tiene tres partes. El aire que respiramos es la combinación de tres gases principales: oxígeno, nitrógeno y carbónico (o argos). 
+El hombre también es trino: espíritu, alma y cuerpo. El cuerpo se compone de tres elementos: carne, hueso y sangre. La sangre se compone de tres sustancias: plasma (líquido), células movibles (glóbulos), y plaquetas (coagulantes).
+Vemos que todo en la creación tiene el sello inconfundible del Dios Trino. No es que haya tres dioses, como no hay tres soles, sino que los Tres cooperan en una mente y un propósito, de modo que en el mejor sentido de la palabra, son Uno. El Padre crea, el Hijo redime, el Espíritu Santo santifica; empero en cada operación los Tres están presentes.
+
+> **Deuteronomio 6:4**
+> 4 Oye, Israel: Jehová nuestro Dios, Jehová uno es.
+
+Es el texto preferido por los Unitarios (Jesús Solo), pero cuando dice que Dios es uno, es precisamente porque al decir Dios (Elohim) ya está expresando una pluralidad, y el texto desea aclarar que aunque la Deidad (Dios) es una pluralidad, empero es Uno en naturaleza, poder, propósitos. Es como en
+
+> **Génesis 11:6**
+> 6 Y dijo Jehová: He aquí el pueblo es uno, y todos éstos tienen un solo lenguaje; y han comenzado la obra, y nada les hará desistir ahora de lo que han pensado hacer.que Dios refiriéndose al pueblo, dice: He aquí el pueblo es uno. 
+
+El pueblo estaba compuesto de miles de personas, pero era uno en el propósito.La palabra Elohim, que en el hebreo es una palabra plural, aparece más de 2.700 veces en el Antiguo Testamento. En muchas otras ocasiones se usan pronombres y verbos en plural, como: 
+
+- Hagamos, Nuestra,
+
+> **Génesis 1:26**
+> 26 Entonces dijo Dios: Hagamos al hombre a nuestra imagen, conforme a nuestra semejanza; y señoree en los peces del mar, en las aves de los cielos, en las bestias, en toda la tierra, y en todo animal que se arrastra sobre la tierra.
+
+- Nosotros
+
+> **Génesis 3:22**
+> 22 Y dijo Jehová Dios: He aquí el hombre es como uno de nosotros, sabiendo el bien y el mal; ahora, pues, que no alargue su mano, y tome también del árbol de la vida, y coma, y viva para siempre.
+
+- Descendamos, Confundamos
+
+> **Génesis 11:7**
+> 7 Ahora, pues, descendamos, y confundamos allí su lengua, para que ninguno entienda el habla de su compañero.
+
+- Nosotros
+
+> **Génesis 3:22**
+> 22 Y dijo Jehová Dios: He aquí el hombre es como uno de nosotros, sabiendo el bien y el mal; ahora, pues, que no alargue su mano, y tome también del árbol de la vida, y coma, y viva para siempre.
+
+- En el bautismo de Jesús se manifestaron simultáneamente el Padre, el Hijo y el Espíritu Santo
+
+> **Mateo 3:13-17**
+> 13 Entonces Jesús vino de Galilea a Juan al Jordán, para ser bautizado por él.
+ 14 Mas Juan se le oponía, diciendo: Yo necesito ser bautizado por ti, ¿y tú vienes a mí?
+ 15 Pero Jesús le respondió: Deja ahora, porque así conviene que cumplamos toda justicia. Entonces le dejó.
+ 16 Y Jesús, después que fue bautizado, subió luego del agua; y he aquí los cielos le fueron abiertos, y vio al Espíritu de Dios que descendía como paloma, y venía sobre él.
+ 17 Y hubo una voz de los cielos, que decía: Este es mi Hijo amado, en quien tengo complacencia.
+
