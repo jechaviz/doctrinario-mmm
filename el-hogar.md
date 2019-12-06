@@ -1,0 +1,216 @@
+# El hogar
+
+## 1. El Matrimonio:
+
+- A. El matrimonio es una institución divina; la primera que Dios estableció en la raza humana. Es la unión por toda la vida de un hombre y una mujer, para formar una sola carne, para la perpetuidad y felicidad de la raza humana
+
+> **Génesis 1:27-28**
+> 27 Y creó Dios al hombre a su imagen, a imagen de Dios lo creó; varón y hembra los creó.
+ 28 Y los bendijo Dios, y les dijo: Fructificad y multiplicaos; llenad la tierra, y sojuzgadla, y señoread en los peces del mar, en las aves de los cielos, y en todas las bestias que se mueven sobre la tierra.
+
+> **Génesis 2:18-24**
+> 18 Y dijo Jehová Dios: No es bueno que el hombre esté solo; le haré ayuda idónea para él.
+ 19 Jehová Dios formó, pues, de la tierra toda bestia del campo, y toda ave de los cielos, y las trajo a Adán para que viese cómo las había de llamar; y todo lo que Adán llamó a los animales vivientes, ese es su nombre.
+ 20 Y puso Adán nombre a toda bestia y ave de los cielos y a todo ganado del campo; mas para Adán no se halló ayuda idónea para él.
+ 21 Entonces Jehová Dios hizo caer sueño profundo sobre Adán, y mientras éste dormía, tomó una de sus costillas, y cerró la carne en su lugar.
+ 22 Y de la costilla que Jehová Dios tomó del hombre, hizo una mujer, y la trajo al hombre.
+ 23 Dijo entonces Adán: Esto es ahora hueso de mis huesos y carne de mi carne; ésta será llamada Varona,[a] porque del varón fue tomada.
+ 24 Por tanto, dejará el hombre a su padre y a su madre, y se unirá a su mujer, y serán una sola carne.
+
+- B. El matrimonio debidamente constituido y sus relaciones, es digno y honroso. Honroso sea a todos el matrimonio, y el lecho sin mancilla. Lo deshonroso y lo pecaminoso es la fornicación (unión carnal entre solteros) y el adulterio (unión carnal de personas casadas fuera del matrimonio). Pero a los fornicarios y adúlteros los juzgará Dios
+
+> **Hebreos 13:4**
+> 4 Honroso sea en todos el matrimonio, y el lecho sin mancilla; pero a los fornicarios y a los adúlteros los juzgará Dios.
+
+- C. El matrimonio es la base y fundamento del hogar, de la familia, de la iglesia, de la sociedad, de la nación, de la raza. El Evangelio confiere a la institución del hogar una santidad especial. Compara el matrimonio con la inefable unión que existe entre Cristo y Su Iglesia
+
+> **Efesios 5:22-33**
+> 22 Las casadas estén sujetas a sus propios maridos, como al Señor;
+ 23 porque el marido es cabeza de la mujer, así como Cristo es cabeza de la iglesia, la cual es su cuerpo, y él es su Salvador.
+ 24 Así que, como la iglesia está sujeta a Cristo, así también las casadas lo estén a sus maridos en todo.
+ 25 Maridos, amad a vuestras mujeres, así como Cristo amó a la iglesia, y se entregó a sí mismo por ella,
+ 26 para santificarla, habiéndola purificado en el lavamiento del agua por la palabra,
+ 27 a fin de presentársela a sí mismo, una iglesia gloriosa, que no tuviese mancha ni arruga ni cosa semejante, sino que fuese santa y sin mancha.
+ 28 Así también los maridos deben amar a sus mujeres como a sus mismos cuerpos. El que ama a su mujer, a sí mismo se ama.
+ 29 Porque nadie aborreció jamás a su propia carne, sino que la sustenta y la cuida, como también Cristo a la iglesia,
+ 30 porque somos miembros de su cuerpo, de su carne y de sus huesos.
+ 31 Por esto dejará el hombre a su padre y a su madre, y se unirá a su mujer, y los dos serán una sola carne.
+ 32 Grande es este misterio; mas yo digo esto respecto de Cristo y de la iglesia.
+ 33 Por lo demás, cada uno de vosotros ame también a su mujer como a sí mismo; y la mujer respete a su marido.
+
+## 2. El Esposo:
+
+- A. El esposo es la cabeza del hogar, pero su autoridad debe ejercerla con amor. Así como todos nuestros deberes para con Dios están resumidos en nuestro amor a Él, así el esposo debe mostrar en todo su amor a su esposa
+
+> **Efesios 5:25-33**
+> 25 Maridos, amad a vuestras mujeres, así como Cristo amó a la iglesia, y se entregó a sí mismo por ella,
+ 26 para santificarla, habiéndola purificado en el lavamiento del agua por la palabra,
+ 27 a fin de presentársela a sí mismo, una iglesia gloriosa, que no tuviese mancha ni arruga ni cosa semejante, sino que fuese santa y sin mancha.
+ 28 Así también los maridos deben amar a sus mujeres como a sus mismos cuerpos. El que ama a su mujer, a sí mismo se ama.
+ 29 Porque nadie aborreció jamás a su propia carne, sino que la sustenta y la cuida, como también Cristo a la iglesia,
+ 30 porque somos miembros de su cuerpo, de su carne y de sus huesos.
+ 31 Por esto dejará el hombre a su padre y a su madre, y se unirá a su mujer, y los dos serán una sola carne.
+ 32 Grande es este misterio; mas yo digo esto respecto de Cristo y de la iglesia.
+ 33 Por lo demás, cada uno de vosotros ame también a su mujer como a sí mismo; y la mujer respete a su marido.La vida de la esposa se compone de cosas pequeñas, por lo tanto, el esposo debe hacerla feliz por medio de cortesías. El amor y el buen trato es el único sueldo que la esposa recibe de parte del esposo.
+
+## 3. La Esposa:
+
+- A. La esposa, a la vez que disfruta de toda la consideración del esposo, debe estar sujeta a su esposo, como conviene en el Señor
+
+> **Colosenses 3:18**
+> 18 Casadas, estad sujetas a vuestros maridos, como conviene en el Señor.Todo lo que se aplica al esposo en cuanto al amor y al buen trato, igualmente se aplica a la esposa con respecto al esposo. La esposa debe honrar y obedecer al esposo
+
+> **1 Corintios 11:3**
+> 3 Pero quiero que sepáis que Cristo es la cabeza de todo varón, y el varón es la cabeza de la mujer, y Dios la cabeza de Cristo.
+
+> **Efesios 5:22**
+> 22 Las casadas estén sujetas a sus propios maridos, como al Señor;
+
+- debe ser laboriosa
+
+> **Proverbios 31:10-31**
+> 10 Mujer virtuosa, ¿quién la hallará? Porque su estima sobrepasa largamente a la de las piedras preciosas.
+ 11 El corazón de su marido está en ella confiado, Y no carecerá de ganancias.
+ 12 Le da ella bien y no mal Todos los días de su vida.
+ 13 Busca lana y lino, Y con voluntad trabaja con sus manos.
+ 14 Es como nave de mercader; Trae su pan de lejos.
+ 15 Se levanta aun de noche Y da comida a su familia Y ración a sus criadas.
+ 16 Considera la heredad, y la compra, Y planta viña del fruto de sus manos.
+ 17 Ciñe de fuerza sus lomos, Y esfuerza sus brazos.
+ 18 Ve que van bien sus negocios; Su lámpara no se apaga de noche.
+ 19 Aplica su mano al huso, Y sus manos a la rueca.
+ 20 Alarga su mano al pobre, Y extiende sus manos al menesteroso.
+ 21 No tiene temor de la nieve por su familia, Porque toda su familia está vestida de ropas dobles.
+ 22 Ella se hace tapices; De lino fino y púrpura es su vestido.
+ 23 Su marido es conocido en las puertas, Cuando se sienta con los ancianos de la tierra.
+ 24 Hace telas, y vende, Y da cintas al mercader.
+ 25 Fuerza y honor son su vestidura; Y se ríe de lo por venir.
+ 26 Abre su boca con sabiduría, Y la ley de clemencia está en su lengua.
+ 27 Considera los caminos de su casa, Y no come el pan de balde.
+ 28 Se levantan sus hijos y la llaman bienaventurada; Y su marido también la alaba:
+ 29 Muchas mujeres hicieron el bien; Mas tú sobrepasas a todas.
+ 30 Engañosa es la gracia, y vana la hermosura; La mujer que teme a Jehová, ésa será alabada.
+ 31 Dadle del fruto de sus manos, Y alábenla en las puertas sus hechos.
+
+## 4. Los Padres:
+
+- A. Los padres al traer a la existencia a un ser inmortal están asumiendo la mayor responsabilidad que los seres humanos podamos asumir. Quienes no asumen las responsabilidades de progenitores, son dignos de condenación
+
+> **1 Timoteo 5:8**
+> 8 porque si alguno no provee para los suyos, y mayormente para los de su casa, ha negado la fe, y es peor que un incrédulo.
+
+- B. Los padres, no solo deben proveer para sus hijos las cosas necesarias, pero también las cosas espirituales. instruye al niño en su camino; y aun cuando fuere viejo no se apartará de él
+
+> **Proverbios 22:6**
+> 6 Instruye al niño en su camino, Y aun cuando fuere viejo no se apartará de él.
+
+- Si fuere necesario, debe castigar a sus hijos para enseñarles a la obediencia
+
+> **Proverbios 13:24**
+> 24 El que detiene el castigo, a su hijo aborrece; Mas el que lo ama, desde temprano lo corrige.
+
+> **Proverbios 19:18**
+> 18 Castiga a tu hijo en tanto que hay esperanza; Mas no se apresure tu alma para destruirlo.
+
+> **Proverbios 22:15**
+> 15 La necedad está ligada en el corazón del muchacho; Mas la vara de la corrección la alejará de él.
+
+## 5. Los Hijos:
+
+- A. El primero y único mandamiento acompañado de una promesa es para los hijos. Honra a tu padre y a tu madre, para que tus días se alarguen sobre la tierra que Jehová tu Dios te da
+
+> **Éxodo 20:12**
+> 12 Honra a tu padre y a tu madre, para que tus días se alarguen en la tierra que Jehová tu Dios te da.
+
+- B. Los hijos deben respetar, obedecer, honrar, ayudar, cuidar de sus padres cuando éstos lo necesiten.
+
+## 6. Los Novios:
+
+- A. Los jóvenes cristianos deben casarse en el Señor. Esto es, con cristianos. Casarse con inconversos es yugo desigual, que la Biblia condena
+
+> **2 Corintios 6:14-18**
+> 14 No os unáis en yugo desigual con los incrédulos; porque ¿qué compañerismo tiene la justicia con la injusticia? ¿Y qué comunión la luz con las tinieblas?
+ 15 ¿Y qué concordia Cristo con Belial? ¿O qué parte el creyente con el incrédulo?
+ 16 ¿Y qué acuerdo hay entre el templo de Dios y los ídolos? Porque vosotros sois el templo del Dios viviente, como Dios dijo: Habitaré y andaré entre ellos, Y seré su Dios, Y ellos serán mi pueblo.
+ 17 Por lo cual, Salid de en medio de ellos, y apartaos, dice el Señor, Y no toquéis lo inmundo; Y yo os recibiré,
+ 18 Y seré para vosotros por Padre, Y vosotros me seréis hijos e hijas, dice el Señor Todopoderoso.
+
+- B. En su amistad y relación como novios, los jóvenes cristianos deben adornar la doctrina y enseñanza cristiana; deben comportarse con toda honestidad y apartarse de toda apariencia de mal. Deben estar bien seguros de la voluntad de Dios al hacer una elección la cual es para toda la vida. Conviene no sentarse juntos en la iglesia.
+
+## 7. El Divorcio
+
+- A. Como ya hemos visto, el matrimonio es una institución divina, cuyo vínculo es roto únicamente por la muerte
+
+> **1 Corintios 7:
+39**
+> 39 La mujer casada está ligada por la ley mientras su marido vive; pero si su marido muriere, libre es para casarse con quien quiera, con tal que sea en el Señor.Cuando los fariseos preguntaron sobre el divorcio, el Señor fue muy enfático al declarar que el que los hizo al principio, varón y hembra los hizo... y los dos serán una sola carne; por tanto, lo que Dios juntó, no lo separe el hombre
+
+> **Mateo 19:3-6**
+> 3 Entonces vinieron a él los fariseos, tentándole y diciéndole: ¿Es lícito al hombre repudiar a su mujer por cualquier causa?
+ 4 Él, respondiendo, les dijo: ¿No habéis leído que el que los hizo al principio, varón y hembra los hizo,
+ 5 y dijo: Por esto el hombre dejará padre y madre, y se unirá a su mujer, y los dos serán una sola carne?
+ 6 Así que no son ya más dos, sino una sola carne; por tanto, lo que Dios juntó, no lo separe el hombre.
+
+- B. En la unión matrimonial de un hombre y una mujer, sean convertidos o inconversos, y no importa quién oficie, sea ministro, sacerdote o juez, Dios le imparte su aprobación, y ya dejan de ser dos, para venir a ser una sola carne.
+
+- C. El matrimonio es una ley de Dios, el divorcio es una violación humana. El divorcio pretende separar lo que delante de Dios es inseparable. El divorcio es como partir, aserrar una sola carne, un cuerpo, en dos mitades. ¡Horrible!La relación y el vínculo entre esposo y esposa es más íntimo que entre padres e hijos. Por esto el hombre dejará padre y madre, y se unirá a su mujer. ¿Podrá ser roto el vínculo entre padres e hijos, no importa todo lo que hagan abogados y jueces? ¡Nunca!
+El padre podrá desheredad, negar, etc. Pero seguirá siendo padre y el hijo, hijo. De igual modo, y mucho menos, el vínculo matrimonial no puede ser roto por los hombres.
+
+- Los fariseos insistieron en el tema, y volvieron a preguntar: ¿Por qué, pues mandó Moisés dar carta de divorcio, y repudiarla? A esto el Señor contestó: Por la dureza de vuestro corazón Moisés os permitió repudiar a vuestras mujeres; mas al principio no fue así
+
+> **Mateo 19:3-8**
+> 3 Entonces vinieron a él los fariseos, tentándole y diciéndole: ¿Es lícito al hombre repudiar a su mujer por cualquier causa?
+ 4 Él, respondiendo, les dijo: ¿No habéis leído que el que los hizo al principio, varón y hembra los hizo,
+ 5 y dijo: Por esto el hombre dejará padre y madre, y se unirá a su mujer, y los dos serán una sola carne?
+ 6 Así que no son ya más dos, sino una sola carne; por tanto, lo que Dios juntó, no lo separe el hombre.
+ 7 Le dijeron: ¿Por qué, pues, mandó Moisés dar carta de divorcio, y repudiarla?
+ 8 El les dijo: Por la dureza de vuestro corazón Moisés os permitió repudiar a vuestras mujeres; mas al principio no fue así.
+ 
+Note que fue por la dureza del corazón. En el Evangelio no hay lugar para la dureza de corazón. El Evangelio sana la dureza de corazón
+
+> **1 Timoteo 1:5**
+> 5 Pues el propósito de este mandamiento es el amor nacido de corazón limpio, y de buena conciencia, y de fe no fingida,
+
+> **1 Pedro 3:8**
+> 8 Finalmente, sed todos de un mismo sentir, compasivos, amándoos fraternalmente, misericordiosos, amigables;
+
+> **Romanos 2:5**
+> 5 Pero por tu dureza y por tu corazón no arrepentido, atesoras para ti mismo ira para el día de la ira y de la revelación del justo juicio de Dios,Note que Moisés no lo mandó, sino que tuvo que permitir, tolerar una situación existente. Cristo declara: Al principio no fue así.
+
+- El pueblo cristiano no debe gobernarse por la dureza del corazón de los judíos, ni por las permisiones de Moisés a causa de esa dureza, sino por el principio establecido por Dios, que no dio lugar, ni hizo provisión para el divorcio.
+El Señor declara que la única causa para divorcio sería la fornicación 
+
+> **Mateo 19:9**
+> 9 Y yo os digo que cualquiera que repudia a su mujer, salvo por causa de fornicación, y se casa con otra, adultera; y el que se casa con la repudiada, adultera. En Deuteronomio 24:1 se explica causa, y dice: Cuando alguno tomare mujer, y se casare con ella, y si no le agradare por haber hallado en ella alguna cosa indecente, le escribirá carta de divorcio, y se la entregará en su mano y la despedirá de su casa. Siempre se ha afirmado con pruebas bíblicas que el adulterio es la unión carnal fuera del matrimonio; y fornicación, la unión carnal entre personas solteras.
+Si la única causa para el divorcio es la fornicación, y si el divorcio era permitido por haber el esposo recién casado hallado en su esposa que ésta había fornicado con otro antes de casarse, entonces podía darle carta de repudio.
+Deben tomarse en cuenta varias realidades importantes:
+● Primero: El Evangelio Según San Mateo fue escrito especialmente para los judíos, entre quienes el divorcio era una plaga nacional. Se divorciaban por cualquier motivo baladí, hasta porque la sopa le quedaba salada o desabrida a la esposa.
+
+- ● Segundo: Los Evangelios Según San Marcos y San Lucas, que fueron escritos para los gentiles (nosotros), no mencionan absolutamente nada acerca de permisiones para el divorcio
+
+> **Marcos 10:1-12**
+> 1 Levantándose de allí, vino a la región de Judea y al otro lado del Jordán; y volvió el pueblo a juntarse a él, y de nuevo les enseñaba como solía.
+ 2 Y se acercaron los fariseos y le preguntaron, para tentarle, si era lícito al marido repudiar a su mujer.
+ 3 El, respondiendo, les dijo: ¿Qué os mandó Moisés?
+ 4 Ellos dijeron: Moisés permitió dar carta de divorcio, y repudiarla.
+ 5 Y respondiendo Jesús, les dijo: Por la dureza de vuestro corazón os escribió este mandamiento;
+ 6 pero al principio de la creación, varón y hembra los hizo Dios.
+ 7 Por esto dejará el hombre a su padre y a su madre, y se unirá a su mujer,
+ 8 y los dos serán una sola carne; así que no son ya más dos, sino uno.
+ 9 Por tanto, lo que Dios juntó, no lo separe el hombre.
+ 10 En casa volvieron los discípulos a preguntarle de lo mismo,
+ 11 y les dijo: Cualquiera que repudia a su mujer y se casa con otra, comete adulterio contra ella;
+ 12 y si la mujer repudia a su marido y se casa con otro, comete adulterio.
+
+> **Lucas 16:18**
+> 18 Todo el que repudia a su mujer, y se casa con otra, adultera; y el que se casa con la repudiada del marido, adultera.● Tercero: En ninguno de los pasajes (Mateo, Marcos y Lucas) el Señor menciona, ni siquiera infiere, que en caso de divorcio, haya libertad de volver a casarse. Más bien, como hemos visto, en Marcos y Lucas, ni siquiera menciona el divorcio, mucho menos el recasamiento.
+
+- ● Cuarto: A veces, se cita el versículo, el que está en Cristo, nueva criatura es, las cosas viejas pasaron, y he aquí todas son hechas nuevas
+
+> **2 Corintios 5:17**
+> 17 De modo que si alguno está en Cristo, nueva criatura es; las cosas viejas pasaron; he aquí todas son hechas nuevas.para decir que el que se divorcia y se recasa en la vida de pecado, que todo eso, el matrimonio primero y el divorcio es anulado cuando viene a Cristo. Esto es una aplicación errónea de este versículo. La institución del matrimonio no es condicionada, ni modificada, ni alterada, ni anulada por la experiencia del nuevo nacimiento. Si así fuera, entonces el matrimonio que tuvo lugar en la vida de pecado, quedaría anulado, y como ahora es nueva criatura, pues podría dejar su vieja esposa y casarse con una nueva esposa. Esto es absurdo.
+
+- G. Conforme a la Palabra de Dios, quien esté divorciado que ore mucho y se mantenga soltero; quien esté divorciado y recasado y no puede deshacer su recasamiento que igualmente ore mucho, que busque de Dios y se mantenga en la Iglesia, aunque no pueda ocupar cargos oficiales ni ejercer el ministerio, pues para el ministerio la Biblia establece requisitos estrictos.
+El Apóstol Pablo, después de tratar sobre los dones del Espíritu Santo, dice: Mas yo os muestro un camino más excelente. Ese camino más excelente es el amor de Dios derramado en nuestros corazones.
+Y en todo este asunto de las relaciones conyugales y de problemas matrimoniales, también el camino más excelente es el amor a Dios desbordando en nuestros corazones, que nos guía al perdón, a la reconciliación, a la preservación del hogar y a la obediencia a la Palabra de Dios.
+

@@ -1,0 +1,4 @@
+# Actividades Locales
+
+1. Puede haber en la iglesia aquellos departamentos y actividades que sean necesarios para su propio crecimiento y desarrollo espiritual y numérico, tales como la Escuela Dominical, Juventud, Damas, Caballeros, Niños, Esfuerzo Misionero, etc.
+2. Estos grupos tendrán sus dirigentes respectivos para su mejor funcionamiento. Trabajarán en plena armonía con el pastor. Podrán levantar fondos para el cumplimiento de sus actividades y para socorrer a los necesitados de la iglesia. Se esforzarán en el estudio de la Biblia, en el crecimiento espiritual de sus miembros y en la evangelización de nuevos campos.
